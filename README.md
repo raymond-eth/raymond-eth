@@ -2,7 +2,7 @@
 - 👀 I’m interested in Crypto & Web3
 - 🌱 I’m currently learning Architecture
 - 💞️ I’m looking to collaborate on Invisible Friend
-- 📫 How to reach me Twitter : @Raymond_Et
+- 📫 How to reach me Twitter : @Raymond_Eth
 - ⚡ Fun fact: I am the Collab Manager of Invisible Friend
 
 <!---
